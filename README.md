@@ -2,7 +2,7 @@
 - 👀 I’m interested in programing 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on suvctance
-- 📫 How to reach me +527122712871
+- 📫 How to reach me +525561199995
 
 
 <!---
